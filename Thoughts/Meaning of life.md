@@ -1,0 +1,1 @@
+Personally I feel we should do everything in life, by everything I mean make money, learn skills, as this sharpens and feeds the certain parts of ourselves, read Philosophy, question our ethics and our personal philosophies and morals but don't get too much so you live life in your head do, go to places, meet new, people forget, drive a Lambo once even if 

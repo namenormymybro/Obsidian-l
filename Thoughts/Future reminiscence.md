@@ -1,0 +1,9 @@
+Damnnn I'm 18, that was truly the longest year of my life, filled with all the colors you could think of to paint an artwork 
+
+This seems like a long breakdown but let's get to it:
+
+The reason why guys like sports is because they remind of us super heroes they are the most living and physical thing to those we loved growing up the sheer persistence and perseverance of giving your all to something from the days you were born to when you retire allowing the very being of something to consume you, more like eat you alive, letting it entrench all your being till then you retire, nothing like the world stage you would say the bravery, the courage to play in front of millions and not doubt your ability if that is not the sheer utter madness we all crave then I am a fool
+
+Though nonetheless not everyone can be like them, the we have one of a color and not all other colors to give life and society that perfect gray, so all in all it is about dedication, courage, perseverance, and all that makes like beautiful, the community, love this is why we live for then we also have to forget what we live for to actually live, allowing sheer gut move you through life, conforming to societal standards but dutifully knowing that you are not all that, you are not society but we are all of society that makes it grey we are the sum product to make up society but we are not individually society because of we are all our own shades of colours we are a gray but not the perfect of gray but we are all together because of individuation 
+
+But mehhn I'd say this is the longest year of my life, will I ever do it again? I don't know I'm like a child who just gained conciousness now and sees it can both be the best and worst thing that has ever happened to me in my life, and that I don't know if this is thr t

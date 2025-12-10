@@ -1,0 +1,5 @@
+Most people underrate the amount of work it takes to be good and it takes genuinely a precise amount which is between 5-10 years of genuine focus and intensity to be able to pull that off and a certain thing.
+
+And a certain thing is being able to learn different things around a certain subject matter and that's important and to structure out certain things you don't know like there are courses in school to be able to add a formal education guide to informal learning.
+
+Also one thing is to give yourself deadlines for example “will be a test, a trial of my Powers of Imagination and chiefly of my invention…—by which I must make 4000 lines of some circumstances and fill them with Poetry.” Certain deadlines which are tight help with massive learning and iterations far faster than anything else you can imagine. Also the same way Bill Bradley gave himself certain things he wanted to do and structure it out 

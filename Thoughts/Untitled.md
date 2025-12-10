@@ -1,0 +1,1 @@
+1. It sucks to not be liked, it sucks more to not be yourself 
